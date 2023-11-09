@@ -1,4 +1,4 @@
-👋 Hello, I'm Nagaraj D!
+👋 Hello, I'm Nagaraj Dharmaraj!
 
 💻 Full Stack Developer | 🌐 Web Enthusiast | 🚀 Tech Explorer
 
