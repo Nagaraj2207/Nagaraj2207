@@ -15,7 +15,7 @@
 - And more...
 
 🤝 Let's connect:
-- Gamil: dnagaraj3828@gmail.com
+- Gmail: dnagaraj3828@gmail.com
   
 📬 Feel free to reach out to me if you want to collaborate, discuss projects, or just chat about technology. Open to new opportunities and interesting challenges!
 
